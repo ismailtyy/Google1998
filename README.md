@@ -1,2 +1,2 @@
 # Google1998
-![Ekran görüntüsü_20230522_172152](https://github.com/ismailtyy/Google1998/assets/74877119/0ccaa810-529f-4bcf-827c-9084b5b163be)
+![Ekran görüntüsü_20230526_195033](https://github.com/ismailtyy/Google1998/assets/74877119/6255469a-56bb-402d-a21f-7d446bb8d3c6)
